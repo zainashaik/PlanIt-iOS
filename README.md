@@ -3,8 +3,6 @@
 
 Icon Credits:
 
-Earth globe free icon
-Icon made by Freepik from www.flaticon.com
+Earth globe free icon made by Freepik from www.flaticon.com
   
-Chevron free icon
-Icon made by Freepik from www.flaticon.com
+Chevron free icon made by Freepik from www.flaticon.com
